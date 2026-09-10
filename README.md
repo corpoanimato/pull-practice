@@ -1,3 +1,2 @@
 # pull-practice
-
-piullsso many no understand
+no sevsi esto es correcto o como es un pull
